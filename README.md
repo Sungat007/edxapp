@@ -1,0 +1,1 @@
+# open.kaznu.kz
